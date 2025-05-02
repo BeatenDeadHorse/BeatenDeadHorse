@@ -1,6 +1,8 @@
 <p align="center">
   <img src="https://media.discordapp.net/attachments/1085026449741852752/1367682493712433382/output-onlinepngtools_3.png?ex=68157914&is=68142794&hm=6e94d3e1c45232796701583d116bb137e2bad069f7e9544d9f5d950a39c8ba72&=&format=webp&quality=lossless" />
-  idk lol
+  <p align="center">
+    <sup>idk</sup>
+</p>
 </p> <p align="center">
   <img src="https://64.media.tumblr.com/0f4bbc3a2f2afcf3826c736d1975ee32/fd1c2288c022790e-20/s640x960/d205980c93b439e1f9cfcabed22ba1161869c8cf.pnj" />
 </p> 
