@@ -13,6 +13,9 @@
     uhh no dni - no kids though lol
 </p> 
 <p align="center">
+    <sup>if I don't like you you'll know</sup>
+</p>
+<p align="center">
    ragebait mini boss I'm just here to have fun 
 </p> 
 </p> <p align="center">
