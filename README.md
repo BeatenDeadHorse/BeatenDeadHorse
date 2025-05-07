@@ -16,7 +16,7 @@
     <sup>if I don't like you you'll know</sup>
 </p>
 </p> <p align="center">
-  <img src="https://media.discordapp.net/attachments/1172249806291345560/1349006570058682388/IMG_4595.gif?ex=68181005&is=6816be85&hm=583258493a50dd9d2ed07151955694b9e1beaa76db82c32b83abf4013769733b&=" />
+  <img src="https://media.discordapp.net/attachments/1172249806291345560/1349006570058682388/IMG_4595.gif?ex=681cad45&is=681b5bc5&hm=33517a2e52b51071cdfc63ecb33e7efe4919e29778060d6eb7a2a75c064e0e83&=" />
 </p> 
 <p align="center">
    ragebait mini boss I'm just here to have fun - Feel free to talk w me/sit w me I promise I'm not mean or weird
